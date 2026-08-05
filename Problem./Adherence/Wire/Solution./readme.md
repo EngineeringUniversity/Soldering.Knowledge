@@ -1,0 +1,1 @@
+- [Solder won't stick](https://youtu.be/dTk5x017pZA)
