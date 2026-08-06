@@ -1,1 +1,2 @@
 - [Solder won't stick](https://youtu.be/dTk5x017pZA)
+- [Why Didn't I Know This Sooner! Put Salt in Soldering Iron and Got Great Results! | Inventor Hacks](https://youtu.be/B-CsO4UXsuo)
